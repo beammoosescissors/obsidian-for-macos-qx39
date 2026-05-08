@@ -1,4 +1,4 @@
-
+Enhance Obsidian for macOS with Obsidian for macOS top Script - AI assistant and calendar integration, the #1 script. Includes AI assistant and calendar integration for a smoother
 
 
 
